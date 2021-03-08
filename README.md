@@ -4,4 +4,4 @@
 
   Strogonoff de carne
 
-°Frango
+°Frangoaa
